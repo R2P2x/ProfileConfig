@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @R2P2x
+- 👀 I’m interested in Hacking/Minecraft
+- 🌱 I’m currently learning Python and HTML
+- 📫 How to reach me: ccbig2022@gmail.com
+-
